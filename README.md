@@ -1,0 +1,1 @@
+# Mini-Proje-V-cut-Kitle-Endeksi-Hesaplama
